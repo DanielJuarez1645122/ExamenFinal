@@ -14,3 +14,5 @@ Me gusta Spider-Man :smiley: ya que desde pequeño ha sido mi personaje favorito
 ![Esta es una imagen](https://i0.wp.com/hipertextual.com/wp-content/uploads/2021/08/spider-man1.jpg?fit=1920%2C1080&ssl=1)
 ## Spider-Man: No Way Home
 ![Esta es una imagen](https://www.cinemascomics.com/wp-content/uploads/2022/01/spider-man-no-way-home-actores-960x720.jpg?mrf-size=m)
+
+@Juan520dlc ¿Que pelicula te gusta a ti?
